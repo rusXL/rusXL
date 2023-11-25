@@ -1,4 +1,4 @@
-## ✨ About me ✨
+## About me
 
 I have an unwavering interest in the realm of "smart"🧠: from smart people👯 and solutions💡 to smart contracts📜 and devices📱.
 
