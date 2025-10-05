@@ -1,1 +1,1 @@
-Gigachad looking for an Internship in Big Tech
+Gigachad looking for a role in Big Tech
